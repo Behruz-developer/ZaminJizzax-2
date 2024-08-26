@@ -1,1 +1,1 @@
-# ZaminJizzax-2
+# Nurafshon-2
